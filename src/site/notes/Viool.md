@@ -1,0 +1,5 @@
+---
+{"dg-publish":true,"permalink":"/viool/","dg-note-properties":{}}
+---
+
+Ik ben van plan om na mijn bachelor in klassieke zang nog een bachelor te doen in elektrische viool aan het KASK, als ik door de toelatingsproef ben. Ik ben laatste paar jaren heel veel bezig geweest met zang en doe dat heel graag, maar ik wil ook beter worden in viool. Ik ga vanaf nu veel meer aandacht steken in mijn elektrische viool, en mijn genres verbreden. Nu doe ik vooral soundscapes en gebruik het alleen in theatervoorstellingen, maar ik wil ook meer technisch kunnen en ook o.a. jazz kunnen spelen. Ik ga er vanaf de zomervakantie, na mijn examens meer mee bezig zijn, en volgend schooljaar op DKO jazzviool doen. Nu doe ik klassieke viool, maar het lijkt mij beter om naar die jazz te gaan en bij een andere leerkracht te gaan. Ik ga nog steeds evenveel aandacht geven aan mijn zang, mijn elektrische viool gaat gewoon een groter deel van mijn artistieke identiteit worden.
